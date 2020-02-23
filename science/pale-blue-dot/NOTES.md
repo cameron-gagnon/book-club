@@ -130,3 +130,46 @@ sacre-vert. Perhaps they will one day adorn the flags of distant human outposts
 in the Solar System, in that time when the new frontiers are sweeping out from
 the Sun to the stars, and the explorers are surrounded by the endless black of
 space. Sacre-noir.
+
+### Chapter 11: Evening and Morning Star
+* Summary: Venus is quite hot due to the extreme greenhouse gas effects it
+experience with its thicc atmosphere. 90x the pressure on the surface of Venus
+than on Earth due to its atmosphere. Venus emits many radio waves due to its
+heat/atmosphere. Hot, somewhat Earthlike otherwise. Soviet Venera 8 (and more
+onwards) and Pioneer 12 are only two missions to have landed on Venus' surface.
+
+### Chapter 12: The Ground Melts
+* Summary: Volcanoes! Olympus Mons or Mt. Olympus on Mars is the largest
+volcano we know of. It's over 25 km tall (mt. everest is 9 km tall).
+* Volcanoes help us tell how old the surface is based on impact craters and how
+many there are.
+* There are other structures on Venus called "pancake domes" that don't appear
+on Earth
+* Different kinds of vulncanism based on water, ammonia, nitrogen, or methane
+
+### Chapter 13: The Gift of Apollo
+* Moon influences much terminology: lunatic (those who sleep in moonlight go
+crazy), menstruation (latin mensis = month from the word "to measure"), Monday
+is named after the Moon, Month as well, "you might as well ask for the moon".
+However up until recently, we never thought of it as a place
+* Apollo program was more about politics and war than actual science. Proving
+the US could launch essentially a missile to the Moon showed political and
+wartime dominance. For these reasons, it was much easier to get money, people,
+and backing for these missions.
+* Pg. 212 "For me, the most ironic token of that moment in history is the plaque
+signed by President Richard M. Nixon that Apollo 11 took to the Moon. It reads:
+"We came in peace for all mankind." As the US was dropping 7.5 megatons of
+conventional explosives on small nations in Southeast Asia, we congratulated
+ourselves on our humanity: We would harm no one on a lifeless rock."
+* Pg. 212-212: Six more missions after Apollo 11, all but one successfully
+landed on the surface. Apollo 17 carried the first scientist, who was also the
+last human to land on the Moon.
+* Pg. 215: Discussing the astronauts photographing the Earth on the way to/from
+the Moon: "Those images helped awaken our slumbering planetary consciousness.
+They provide incontestable evidence that we all share the same vulnerable
+planet. They remind us of what is important and what is not. They were the
+harbingers of Voyager's pale blue dot.
+* Pg. 215: "What began in deadly competition has helped us to see that global
+cooperation is the essential precondition for our survival. Travel is
+broadening. It's time to hit the road again."
+
