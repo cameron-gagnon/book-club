@@ -173,3 +173,33 @@ harbingers of Voyager's pale blue dot.
 cooperation is the essential precondition for our survival. Travel is
 broadening. It's time to hit the road again."
 
+### Chapter 14: Exploring Other Worlds and Protecting This One
+* Pg 221: Ozone layer depletion, greenhouse warming, and nuclear winter are all
+tied to the exploration of other planets
+* Pg 221: CFCs were discovered by two university scientists working on something
+else. Sherwood Rowland and Mario Molina from University of California, Irvine
+* Pg 222: The CFC research was tied to understanding Venus' atmosphere since
+Venus' atmosphere contains chlorine and fluorine.
+* Pg 223: Mars should have organic rich matter on its surface from nearby impact
+of the asteroid belt but it doesn't. Mars also doesn't have an ozone and its
+surface dust is quickly oxidized and destroyed by UV light. This is where Earth
+is headed by punching its own hole in its atmosphere.
+* Pg 223: Global warming predictions are created and then tested against Venus'
+and Mars' atmospheric makeups to determine if the predictions are right. Turns
+out these predictions line up to the other planets, utilizing the principles of
+physics and our acquired data from missions to these planets.
+* Pg 228: Of all fields of mathematics, technology, and science, the one with
+the greatest international cooperation (as determined by how often the
+co-authors of research papers hail from two or more countries) is the field
+called "Earth and space sciences. Studying this world and others, by its very
+nature, tends to be non-local, non-nationalist, non-chauvinist. Very rarely do
+people go into these fields because they are internationalists. Almost always,
+they enter for other reasons, and then discover that splendid work, work that
+complements their own, is being done by researchers in other nations; or that to
+solve a problem, you need data or a perspective (access to the southern sky, for
+example) that is unavailable in your country. And once you experience such
+cooperation - humans from different parts of the planet working in a mutually
+intelligible scientific language as partners on matters of common concern - it's
+hard not to imagine it happening on other nonscientific matters. I myself
+consider this aspect of Earth and space sciences as a healing and unifying force
+in world politics; but, beneficial or not, it is inescapable.
